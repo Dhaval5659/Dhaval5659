@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **dhavalmangukiya.work@gmail.com**
 
-- ⚡ Fun fact **Nyctophile**
+- ⚡ Fun fact **I am Nyctophile**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
